@@ -13,5 +13,5 @@ Demo https://pixel-rev.blogspot.com/
 
 4.And More
 
-Related Article and Advanced Customisation [Blogger Templates Without Copyright](https://www.pcweek.in/2018/08/blogger-templates-without-copyright.html)
+Related Article and Advanced Customisation [Blogger Templates Without Copyright](https://bloginos.com/blogger-templates-without-copyright.html)
 
